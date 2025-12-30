@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on ESS Institute as a web developer.<br>👯 I’m looking to collaborate on in any startup , company .<br>🌱 I’m currently pursuing BA. (honors) English <br>💬 Ask me about anythink Im easy connet with new people.<br>⚡ 
+🔭 I’m currently working on ESS Institute as a web developer teaacher .<br>👯 I’m looking to collaborate on in any startup , company .<br>🌱 I’m currently pursuing BA. (honors) English .<br>💬 Ask me about anythink Im easy connet with new people.<br>⚡ 
 
 
 ## 🌐 Socials:
